@@ -14,6 +14,9 @@ Er lebt alleine in einer Dachgeschoss-Altbauwohnung in Flat 2, 12 Arbour Road, H
 * 1989 - 1995 produziert
 * 2 Specials / Spielfilme
 
+> Alltagssituation, verwandel sich durch Mr. Beans 
+> Ungeschick und sein Verhalten immer in eine Katastrophe. 
+
 
 
 
