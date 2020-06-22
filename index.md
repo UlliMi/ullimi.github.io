@@ -17,6 +17,9 @@ Er lebt alleine in einer Dachgeschoss-Altbauwohnung in Flat 2, 12 Arbour Road, H
 > Alltagssituation, verwandel sich durch Mr. Beans 
 > Ungeschick und sein Verhalten immer in eine Katastrophe. 
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/f/f1/Atkinson_Rowan.jpg/220px-Atkinson_Rowan.jpg"/>
+
+
 
 
 
